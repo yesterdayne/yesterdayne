@@ -3,7 +3,7 @@ hello, i'm dayne! i'm 30 years old, my pronouns are she/her, and i am gray-asexu
 --------------------------------
 
 if you are here you are probably from ponytown! hi! i don't talk much in-game, i am not the best at conversing with strangers but i'll do my best.
-sometimes you might see me sitting in the bakery or in specific fandom spacesi don't usually talk, i am probably just people watching!
+sometimes you might see me sitting in the bakery or in specific fandom spaces, i don't usually talk, i am probably just people watching!
 
 i like just watching people's convos and looking at everyone's skins.
 
