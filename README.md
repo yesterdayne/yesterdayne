@@ -12,6 +12,7 @@ the best way for me to notice you is to whisper me, but sometimes i still manage
 if you have a skin from the same show/game/whatever as me, feel free to sit next to me and hang if you want! just don't expect me to really talk much, but i don't mind if we silently vibe around each other!
 
 ummm i don't generally do DNI's (i will usually figure out if i want to talk to you or not fairly quickly) but i will say if u are someone who thinks princess bubblegum is similar to hitler or think she's a groomer or something literally GET AWAY FROM HER!!! GET A JOB!!!!! i will not want to talk to you
+also on that note, if you are a sasuke/naruto shipper i support you & your ship is valid but i don't want to talk about naruto with you!! sorry!! it is a weird leftover aversion from my childhood that never went away.
 
 --------------------------------
 
