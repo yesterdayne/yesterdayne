@@ -1,4 +1,5 @@
-hello, i'm dayne! i'm 30 years old, my pronouns are she/her, and i am gray-asexual & sapphic.
+![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
+<br>hello, i'm dayne! i'm 30 years old, my pronouns are she/her, and i am gray-asexual & sapphic.
 
 --------------------------------
 
@@ -21,7 +22,8 @@ also on that note, if you are a sasuke/naruto shipper i support you & your ship 
 please don't copy my skins completely, but i don't mind if you take inspiration from them!
 
 if you want to learn more about me, you can check out my strawpage or carrd! : )
-<!---
-yesterdayne/yesterdayne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+![bonnie](https://github.com/user-attachments/assets/1a5abedd-df22-40f3-80c9-c55d940f204d)
+<!---yesterdayne/yesterdayne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
