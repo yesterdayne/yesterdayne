@@ -5,9 +5,9 @@
 
 if you are here you are probably from ponytown! hi! i don't talk much in-game, i am not the best at conversing with strangers but i'll do my best.
 
-sometimes you might see me sitting in the bakery or in specific fandom spaces, i don't usually talk, i am probably just people watching!
+sometimes you might see me sitting in the bakery or in specific fandom spaces, i don't usually talk.
 
-i like just watching people's convos and looking at everyone's skins.
+i like just watching people's convos and looking at everyone's skins. if i happen to stop right in front of you or over you i'm sorry it's not on purpose, i'll move when i realize, i am probably just looking at a different part of the screen lol.
 
 the best way for me to notice you is to whisper me, but sometimes i still manage to miss whispers!
 
@@ -15,7 +15,7 @@ if you have a skin from the same show/game/whatever as me, feel free to sit next
 
 ummm i don't generally do DNI's (i will usually figure out if i want to talk to you or not fairly quickly) but i will say if u are someone who thinks princess bubblegum is similar to hitler or think she's a groomer or something literally GET AWAY FROM HER!!! GET A JOB!!!!! i will not want to talk to you
 
-also on that note, if you are a sasuke/naruto shipper i support you & your ship is valid but i don't want to talk about naruto with you!! sorry!! it is a weird leftover aversion from my childhood that never went away.
+also on that note, if you are a sasuke/naruto shipper i support you & your ship is valid but i don't want to talk about naruto with you!! sorry!! it is a weird leftover aversion from my childhood that never went away. i will still converse with you if you want, just you know, not about naruto haha.
 
 --------------------------------
 
