@@ -28,7 +28,7 @@ please don't copy my skins completely, but i don't mind if you take inspiration 
 
 [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/)
 
-![vampworld ponies](https://i.imgur.com/tnRP6sX.png)
+![vampworld ponies](https://i.imgur.com/qE1RC0H.png)
 <!---yesterdayne/yesterdayne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
