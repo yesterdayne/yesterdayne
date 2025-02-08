@@ -22,6 +22,8 @@ if you have a skin from the same show/game/whatever as me, feel free to sit next
 
 *also on that note, if you are a sasuke/naruto shipper i support you & your ship is valid but i don't want to talk about naruto with you!! sorry!! it is a weird leftover aversion from my childhood that never went away. i will still converse with you if you want, just you know, not about naruto haha. :sparkling_heart:*
 
+*oh! if you're a minor and you're on the 18+ server don't talk to me! i don't like when kids decide to intrude on adult spaces because they think "they're mature enough".*
+
 --------------------------------
 
 please don't copy my skins completely, but i don't mind if you take inspiration from them!
