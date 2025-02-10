@@ -1,5 +1,5 @@
 ![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
-### DAYNE ;; 30 yrs ;; she/her ;; gray-asexual & sapphic
+### DAYNE ;; 30 yrs ;; she/her ;; gray-asexual & sapphic ;; single
 --------------------------------
 
 if you are here you are probably from ponytown! hi! i don't talk much in-game, i am not the best at conversing with strangers but i'll do my best.
@@ -13,6 +13,8 @@ i like just watching people's convos and looking at everyone's skins. if i happe
 **the best way for me to notice you is to whisper me**, *but sometimes i still manage to miss whispers!*
 
 if you have a skin from the same show/game/whatever as me, feel free to sit next to me and hang if you want! just don't expect me to really talk much, but i don't mind if we silently vibe around each other!
+
+if i'm hanging w/ someone it's usually my friend [jinxx](https://github.com/JinxxedVexx)! they are my bestie and we like to make matching ponies :) ! also she's a great artist so u should like check him out.
 
 <sub>if its not obvious i am currently obsessed with princess bubblegum from adventure time. specifically her vampireworld counterpart from fionna and cake, but i love all bonnies. she makes me feel unwell and i want to smash her with a hammer. i am literally thinking of her like constantly she's like a stupid little pink parasite and i NEED to be euthanized.</sub>
 
