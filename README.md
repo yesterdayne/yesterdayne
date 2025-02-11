@@ -14,6 +14,8 @@ i like just watching people's convos and looking at everyone's skins. if i happe
 
 if you have a skin from the same show/game/whatever as me, feel free to sit next to me and hang if you want! just don't expect me to really talk much, but i don't mind if we silently vibe around each other!
 
+i am not very good at the whole like, expression in-game type thing so sorry if i'm kind of static LOL. i get overwhelmed by my hotbar sometimes and just. Forget. if my eyes are looking in your direction it's probably an accident tbh.
+
 if i'm hanging w/ someone it's usually my friend [jinxx](https://github.com/JinxxedVexx)! they are my bestie and we like to make matching ponies :) ! also she's a great artist so u should like check him out.
 
 <sub>if its not obvious i am currently obsessed with princess bubblegum from adventure time. specifically her vampireworld counterpart from fionna and cake, but i love all bonnies. she makes me feel unwell and i want to smash her with a hammer. i am literally thinking of her like constantly she's like a stupid little pink parasite and i NEED to be euthanized.</sub>
