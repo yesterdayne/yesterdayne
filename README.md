@@ -1,13 +1,14 @@
 ![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
 ### DAYNE ;; 30 yrs ;; she/her ;; gray-asexual & sapphic ;; single
 --------------------------------
+![25-2](https://github.com/user-attachments/assets/1ca7cbc9-f811-44f6-94e1-c99b008c2fd2)
 
 if you are here you are probably from ponytown! hi! i don't talk much in-game, i am not the best at conversing with strangers but i'll do my best.
 
 sometimes you might see me sitting in the bakery or in specific fandom spaces, i don't usually talk.
 
 --------------------------------
-![arboret-2](https://github.com/user-attachments/assets/3fb9d786-2b74-4cf5-846c-c631324275f7)
+![bonnie](https://github.com/user-attachments/assets/c29631e1-830c-432e-a3d8-c56d18d9888b)
 
 i like just watching people's convos and looking at everyone's skins. if i happen to stop right in front of you or over you i'm sorry it's not on purpose, i'll move when i realize, i am probably just looking at a different part of the screen lol.
 
@@ -22,7 +23,7 @@ if i'm hanging w/ someone it's usually my friend [jinxx](https://github.com/Jinx
 <sub>if its not obvious i am currently obsessed with princess bubblegum from adventure time. specifically her vampireworld counterpart from fionna and cake, but i love all bonnies. she makes me feel unwell and i want to smash her with a hammer. i am literally thinking of her like constantly she's like a stupid little pink parasite and i NEED to be euthanized.</sub>
 
 --------------------------------
-![hjeojeo1 300px](https://github.com/user-attachments/assets/81866465-3436-4ed5-bb9f-e811806acdbf)
+![pony vampworld shit 6-4](https://github.com/user-attachments/assets/7f56f7c1-defe-4f48-a541-1b1bcbb7665c)
 
 *ummm i don't generally do DNI's (i will usually figure out if i want to talk to you or not fairly quickly) but i will say if u are someone who thinks princess bubblegum is similar to hitler or think she's a groomer or something literally **GET AWAY FROM HER!!! GET A JOB!!!!!***
 
@@ -31,7 +32,6 @@ if i'm hanging w/ someone it's usually my friend [jinxx](https://github.com/Jinx
 *oh! if you're a minor and you're on the 18+ server don't talk to me! i don't like when kids decide to intrude on adult spaces because they think "they're mature enough".*
 
 --------------------------------
-![25-2](https://github.com/user-attachments/assets/1ca7cbc9-f811-44f6-94e1-c99b008c2fd2)
 
 please don't copy my skins completely, but i don't mind if you take inspiration from them!
 
