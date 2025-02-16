@@ -27,8 +27,6 @@ if i'm hanging w/ someone it's usually my friend [jinxx](https://github.com/Jinx
 
 *ummm i don't generally do DNI's (i will usually figure out if i want to talk to you or not fairly quickly) but i will say if u are someone who thinks princess bubblegum is similar to hitler or think she's a groomer or something literally **GET AWAY FROM HER!!! GET A JOB!!!!!***
 
-*ok so i previously had a thing about not wanting to talk to sasunaru shippers but i am realizing i am 30 years old and i need to try and work past the weird childhood trauma i have towards it. if u are a sasunaru shipper we can talk about naruto but if you are one of those shippers that specifically hates the female characters from naruto for getting in the way of yaoi then i dont wanna talk to u. there's my middle ground.*
-
 *oh! if you're a minor and you're on the 18+ server don't talk to me! i don't like when kids decide to intrude on adult spaces because they think "they're mature enough".*
 
 --------------------------------
