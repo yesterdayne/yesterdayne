@@ -5,7 +5,7 @@
 
 if you are here you are probably from ponytown! hi! i don't talk much in-game, i am not the best at conversing with strangers but i'll do my best.
 
-sometimes you might see me sitting in the bakery or in specific fandom spaces, i don't usually talk.
+usually i am either sitting in the bakery, outside the bakery, or SOMETIMES near spawn, i don't usually talk. that doesn't mean i wont, tho! if you wanna talk about one of my interests i am more likely to be talkative vs just general smalltalk haha.
 
 --------------------------------
 ![bonnie](https://github.com/user-attachments/assets/c29631e1-830c-432e-a3d8-c56d18d9888b)
@@ -23,7 +23,6 @@ if i'm hanging w/ someone it's usually my friend [jinxx](https://github.com/Jinx
 <sub>if its not obvious i am currently obsessed with princess bubblegum from adventure time. specifically her vampireworld counterpart from fionna and cake, but i love all bonnies. she makes me feel unwell and i want to smash her with a hammer. i am literally thinking of her like constantly she's like a stupid little pink parasite and i NEED to be euthanized.</sub>
 
 --------------------------------
-![pony vampworld shit 6-4](https://github.com/user-attachments/assets/7f56f7c1-defe-4f48-a541-1b1bcbb7665c)
 
 *ummm i don't generally do DNI's (i will usually figure out if i want to talk to you or not fairly quickly) but i will say if u are someone who thinks princess bubblegum is similar to hitler or think she's a groomer or something literally **GET AWAY FROM HER!!! GET A JOB!!!!!***
 
