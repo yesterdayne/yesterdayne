@@ -7,6 +7,8 @@ if you are here you are probably from ponytown! hi! i don't talk much in-game, i
 
 usually i am either sitting in the bakery, outside the bakery, or SOMETIMES near spawn, i don't usually talk. that doesn't mean i wont, tho! if you wanna talk about one of my interests i am more likely to be talkative vs just general smalltalk haha.
 
+PS! i most likely won't add you to my friends list unless we've at least talked beforehand! don't take it personal, i just don't want my friends list flooded with people i don't know at all lol ;_;
+
 --------------------------------
 ![bonnie](https://github.com/user-attachments/assets/c29631e1-830c-432e-a3d8-c56d18d9888b)
 
