@@ -6,6 +6,8 @@
 
 if you are here you are probably from ponytown! hi! i don't talk much in-game, i am not the best at conversing with strangers but i'll do my best.
 
+i use she/her pretty much exclusively, but i do not mind if you refer to me as the pronouns of whatever character i am cosplaying at the time. i also don't mind if you use the character's name to refer to me, but don't expect me to do any rp type stuff!
+
 usually i am either sitting in the bakery, outside the bakery, or SOMETIMES near spawn, i don't usually talk. that doesn't mean i wont, tho! if you wanna talk about one of my interests i am more likely to be talkative vs just general smalltalk haha.
 
 PS! i most likely won't add you to my friends list unless we've at least talked beforehand! don't take it personal, i just don't want my friends list flooded with people i don't know at all lol ;_;
@@ -13,13 +15,9 @@ PS! i most likely won't add you to my friends list unless we've at least talked 
 --------------------------------
 ![bonnie](https://github.com/user-attachments/assets/c29631e1-830c-432e-a3d8-c56d18d9888b)
 
-i like just watching people's convos and looking at everyone's skins. if i happen to stop right in front of you or over you i'm sorry it's not on purpose, i'll move when i realize, i am probably just looking at a different part of the screen lol.
-
 **the best way for me to notice you is to whisper me**, *but sometimes i still manage to miss whispers!*
 
 if you have a skin from the same show/game/whatever as me, feel free to sit next to me and hang if you want! just don't expect me to really talk much, but i don't mind if we silently vibe around each other!
-
-i am not very good at the whole like, expression in-game type thing so sorry if i'm kind of static LOL. i get overwhelmed by my hotbar sometimes and just. Forget. if my eyes are looking in your direction it's probably an accident tbh.
 
 if i'm hanging w/ someone it's usually my friend [jinxx](https://github.com/JinxxedVexx)! they are my bestie and we like to make matching ponies :) ! also she's a great artist so u should like check him out.
 
