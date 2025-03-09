@@ -35,7 +35,10 @@ please don't copy my skins completely, but i don't mind if you take inspiration 
 
 [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/)
 
-![vampworld ponies](https://i.imgur.com/5PJqMk6.png)
+![hj image glazed-2](https://github.com/user-attachments/assets/6c5aafdd-9c06-4363-b2ae-e6ec081af147)
+
+(MY BIRTHDAY PRESENT FROM JINXX BY [HJEOJEO](https://hjeojeo.com/)!!!! SCREAMS)
+
 <!---yesterdayne/yesterdayne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
