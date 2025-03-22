@@ -10,6 +10,8 @@ i use she/her pretty much exclusively, but i do not mind if you refer to me as t
 
 usually i am either sitting in the bakery, outside the bakery, or SOMETIMES near spawn, i don't usually talk. that doesn't mean i wont, tho! if you wanna talk about one of my interests i am more likely to be talkative vs just general smalltalk haha.
 
+"how do you stay in ponytown all day without getting disconnected?" you see i have no life, i am literally at my computer and i am just clicking on the screen to make sure i don't go afk off and on.
+
 PS! i most likely won't add you to my friends list unless we've at least talked beforehand! don't take it personal, i just don't want my friends list flooded with people i don't know at all lol ;_;
 
 --------------------------------
