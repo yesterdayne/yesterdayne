@@ -27,8 +27,7 @@ if i'm hanging w/ someone it's usually my friend [jinxx](https://github.com/Jinx
 
 --------------------------------
 
-*ummm i don't generally do DNI's (i will usually figure out if i want to talk to you or not fairly quickly) but i will say if u are someone who thinks princess bubblegum is similar to hitler or she's "evil" or think she's a groomer or something literally **GET AWAY FROM HER!!! GET A JOB!!!!!***
-* on this note, i am not someone who thinks that she did nothing wrong. she did! she sure did! but 90% of the people who bring it up constantly overblow or misread situations purely because they just don't like her and assign human morality to a non-human person.*
+*ummm i don't generally do DNI's (i will usually figure out if i want to talk to you or not fairly quickly) but i will say if u are someone who thinks princess bubblegum is similar to hitler or she's "evil" or think she's a groomer or something literally **GET AWAY FROM HER!!! GET A JOB!!!!!** on this note, i am not someone who thinks that she did nothing wrong. she did! she sure did! but 90% of the people who bring it up constantly overblow or misread situations purely because they just don't like her and assign human morality to a non-human person.*
 
 *oh! if you're a minor and you're on the 18+ server don't talk to me! i don't like when kids decide to intrude on adult spaces because they think "they're mature enough".*
 
