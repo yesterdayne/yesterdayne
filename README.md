@@ -12,8 +12,6 @@ usually i am either sitting in the bakery, outside the bakery, or SOMETIMES near
 
 "how do you stay in ponytown all day without getting disconnected?" you see i have no life, i am literally at my computer and i am just clicking on the screen to make sure i don't go afk off and on.
 
-PS! i most likely won't add you to my friends list unless we've at least talked beforehand! don't take it personal, i just don't want my friends list flooded with people i don't know at all lol ;_;
-
 --------------------------------
 ![bonnie](https://github.com/user-attachments/assets/c29631e1-830c-432e-a3d8-c56d18d9888b)
 
