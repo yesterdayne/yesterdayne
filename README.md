@@ -1,9 +1,10 @@
 ![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
 ## DAYNE ;; 31 yrs ;; she/her ;; gray-asexual & sapphic ;; single ;; high rank soldier in the princess bubblegum defense squad
 ### NO RP ;; YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY HIDE ME!
-[STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/)
 --------------------------------
 ![25-2](https://github.com/user-attachments/assets/1ca7cbc9-f811-44f6-94e1-c99b008c2fd2)
+
+[STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/)
 
 if you are here you are probably from ponytown! hi! i don't talk much in-game, i am not the best at conversing with strangers but i'll do my best.
 
