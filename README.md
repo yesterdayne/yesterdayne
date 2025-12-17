@@ -5,6 +5,7 @@
 [ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ]
 
 > **note! lately i haven't been feeling super talkative, i mostly have just been logging on to look at ponies & watch conversations while i'm doing something else on my other screen. please don't get offended if i don't respond to you! whispering is the best way to get me to respond, but i might not hold convos long.**
+> **IF I'VE REMOVED YOU FROM MY FRIENDS LIST PLEASE DON'T TAKE IT AS AN INSULT! i am clearing out my friends list except for people i know very well!**
 
 *i am not super conversational in the first place, i do not do very good with small talk and if i do manage to get into a conversation i get burnt out very fast. please try to be patient with me!!*
 
