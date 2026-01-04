@@ -1,10 +1,10 @@
 ![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
 ## DAYNE ;; 31 yrs ;; she/her ;; nonbinary transmasc + lesbian + demisexual
-### NO RP ;; MOSTLY QUIET ;; YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY HIDE ME!
+### PLEASE DON'T TRY TO RP WITH ME! ;; MOSTLY QUIET ;; YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY HIDE ME!
 
 [ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ]
 
-> **note! lately i haven't been feeling super talkative, i mostly have just been logging on to look at ponies & watch conversations while i'm doing something else on my other screen. please don't get offended if i don't respond to you! whispering is the best way to get me to respond, but i might not hold convos long.**
+> **IF MY PONY HAS "MUTE" IN THE NAME; I WILL STILL REPLY TO CROWNS/COMPLIMENTS! I AM JUST NOT WILLING TO HOLD CONVERSATIONS AT THE MOMENT.**
 
 > **IF I'VE REMOVED YOU FROM MY FRIENDS LIST PLEASE DON'T TAKE IT AS AN INSULT! i am clearing out my friends list except for people i know very well!**
 
