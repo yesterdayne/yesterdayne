@@ -14,7 +14,7 @@ i like when people come and just sit with me silently! if you ever just want to 
 
 if you do decide to sit around/near me though- please be mindful of other people's spaces! i don't like accidentally hiding other people's ponies who are just there vibing.
 
-if i'm in-game and not timing out, then i am at least near my computer and consciously clicking to make sure i don't d/c.
+i generally sit in the middle island under the bakery or nearby if there's no open spots, but you might sometimes find me near spawn. just very rarely usually. if i'm in-game and not timing out, then i am at least near my computer and consciously clicking to make sure i don't d/c.
 
 --------
 ![bonnie 6](https://github.com/user-attachments/assets/ecbf15ff-ff04-41cb-a70f-290300b4b75a)
