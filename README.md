@@ -25,7 +25,7 @@ if i'm hanging w/ someone it's usually my friend [Jinxx](https://github.com/jinx
 
 i am not really personally involved in any fandom spaces. i interact with art and stuff but i'm not like in the trenches. any media i like i am just on the fringes of usually.
 
-> *i don't really do DNI's, but if you try to argue with me or get a rise out of me about things i like, i will most likely just hide you or ignore you. i do not get on the internet to argue with random people about shit i enjoy.*
+> *DNIs uhh i guess if you're fatphobic, any of the generic racist/sexist/homophobic, use the r-slur (even reclaiming, yes.), if you think adults drawing nsfw is wrong (?), idk if you're just rude in general or specifically try to rile people up*
 
 > _**minors on 18+ server dni pls, ty!**_
 
