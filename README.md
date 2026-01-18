@@ -27,7 +27,7 @@ i am not really personally involved in any fandom spaces. i interact with art an
 
 > *DNIs uhh i guess if you're fatphobic, any of the generic racist/sexist/homophobic, use the r-slur (even reclaiming, yes.), if you think adults drawing nsfw is wrong (?), idk if you're just rude in general or specifically try to rile people up*
 
-> _**minors on 18+ server dni pls, ty!**_
+> _**minors on 18+ server dni pls, ty! i don't hate minors, its just that i'm 30+ years old and have no interest in befriending or talking to them.**_
 
 --------------------------------
 
