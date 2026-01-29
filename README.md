@@ -1,6 +1,6 @@
 ![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
 ## DAYNE ;; 31 yrs ;; she/her ;; nonbinary transmasc + lesbian + demisexual
-### PLEASE DON'T TRY TO RP WITH ME! ;; MOSTLY QUIET ;; YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY HIDE ME!
+### PLEASE DON'T TRY TO RP WITH ME! ;; MOSTLY QUIET ;; YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY COVER ME! ;; PLEASE DO NOT COPY MY PONIES ; you can take inspiration. as long as they dont look super similar.
 
 [ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ]
 
