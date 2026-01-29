@@ -1,6 +1,8 @@
 ![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
 ## DAYNE ;; 31 yrs ;; she/her ;; nonbinary transmasc + lesbian + demisexual
-### PLEASE DON'T TRY TO RP WITH ME! ;; MOSTLY QUIET ;; YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY COVER ME! ;; PLEASE DO NOT COPY MY PONIES ; you can take inspiration. as long as they dont look super similar.
+
+### PLEASE DON'T TRY TO RP WITH ME! ;; I DON'T TALK MUCH
+### YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY COVER ME! ;; PLEASE DO NOT COPY MY PONIES ; *you can take inspiration. as long as they dont look super similar.*
 
 [ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ]
 
@@ -23,9 +25,9 @@ i generally sit in the middle island under the bakery or nearby if there's no op
 
 if i'm hanging w/ someone it's usually my friend [Jinxx](https://github.com/jinxxedvexx)! they are my bestie and we like to make matching ponies :) ! also she's a great artist so u should like check him out.
 
-i am not really personally involved in any fandom spaces. i interact with art and stuff but i'm not like in the trenches. any media i like i am just on the fringes of usually.
+i am not really personally involved in any fandom spaces. i interact with art and stuff but i'm not like in the trenches. any media i like i am just on the fringes of usually. im not super interested in having big fandom conversations.
 
-> *DNIs uhh i guess if you're fatphobic, any of the generic racist/sexist/homophobic, use the r-slur (even reclaiming, yes.), if you think adults drawing nsfw is wrong (?), idk if you're just rude in general or specifically try to rile people up*
+> *DNIs uhh i guess if you're fatphobic, any of the generic racist/sexist/homophobic, if you like zoophilia/underage/noncon/necro (i am just not comfy with it fiction or not, sorry), use the r-slur (even reclaiming, yes.), if you think adults drawing nsfw is wrong (?), idk if you're just rude in general or specifically try to rile people up*
 
 > _**minors on 18+ server dni pls, ty! i don't hate minors, its just that i'm 30+ years old and have no interest in befriending or talking to them.**_
 
