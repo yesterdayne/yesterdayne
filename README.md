@@ -35,7 +35,7 @@ i am not really personally involved in any fandom spaces. i interact with art an
 
 *please don't copy my skins completely, but i don't mind if you take inspiration from them!*
 
-<img width="753" height="400" alt="cewepsdpf banner" src="https://github.com/user-attachments/assets/5ea8debc-8e74-4fae-a77d-298ae6bdd700" />
+<img width="703" height="395" alt="flirtin banner" src="https://github.com/user-attachments/assets/0802cc53-3abe-406b-a4e0-aabd164d910a" />
 
 [ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ]
 <!---yesterdayne/yesterdayne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
