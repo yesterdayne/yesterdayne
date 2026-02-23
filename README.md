@@ -10,7 +10,7 @@
 
 > **IF I'VE REMOVED YOU FROM MY FRIENDS LIST PLEASE DON'T TAKE IT AS AN INSULT! i am clearing out my friends list except for people i know very well!**
 
-*i am not super conversational in the first place, i do not do very good with small talk and if i do manage to get into a conversation i get burnt out very fast. please try to be patient with me!!*
+*i am not super conversational in the first place, i do not do very good with small talk and if i do manage to get into a conversation i get burnt out very fast. please try to be patient with me!! i mostly use pony town as a kind of second monitor screensaver, where i just look at people's ponies and watch conversations!*
 
 i like when people come and just sit with me silently! if you ever just want to hang around me with no pressure to talk feel free, i don't mind it!
 
