@@ -23,8 +23,6 @@ i generally sit in the middle island under the bakery or nearby if there's no op
 
 **the best way for me to notice you is to whisper me, but _sometimes i still manage to miss whispers!_**
 
-if i'm hanging w/ someone it's usually my friend [Jinxx](https://github.com/jinxxedvexx)! they are my bestie and we like to make matching ponies :) ! also she's a great artist so u should like check him out.
-
 i am not really personally involved in any fandom spaces. i interact with art and stuff but i'm not like in the trenches. any media i like i am just on the fringes of usually. im not super interested in having big fandom conversations.
 
 > *DNIs uhh i guess if you're fatphobic, any of the generic racist/sexist/homophobic, if you like zoophilia/underage/noncon/necro (i am just not comfy with it fiction or not, sorry), use the r-slur (even reclaiming, yes.), if you think adults drawing nsfw is wrong (?), idk if you're just rude in general or specifically try to rile people up*
