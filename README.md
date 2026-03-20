@@ -33,8 +33,6 @@ i am not really personally involved in any fandom spaces. i interact with art an
 
 *please don't copy my skins completely, but i don't mind if you take inspiration from them!*
 
-<img width="703" height="395" alt="flirtin banner" src="https://github.com/user-attachments/assets/0802cc53-3abe-406b-a4e0-aabd164d910a" />
-
 [ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ]
 <!---yesterdayne/yesterdayne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
