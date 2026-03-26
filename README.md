@@ -31,6 +31,8 @@ i am not really personally involved in any fandom spaces. i interact with art an
 
 --------------------------------
 
+<img height="300" alt="cheeb wm" src="https://github.com/user-attachments/assets/dad18143-63a0-4a3d-8c12-1c9cc2317b8b" />
+
 *please don't copy my skins completely, but i don't mind if you take inspiration from them!*
 
 [ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ]
