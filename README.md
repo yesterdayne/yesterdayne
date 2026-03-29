@@ -30,8 +30,8 @@ i am not really personally involved in any fandom spaces. i interact with art an
 > _**minors on 18+ server dni pls, ty! i don't hate minors, its just that i'm 30+ years old and have no interest in befriending or talking to them.**_
 
 --------------------------------
+<img width="425" height="421" alt="cheeb half size wm" src="https://github.com/user-attachments/assets/787e3ebb-8f55-44f5-9e3a-3974860f92cd" />
 
-<img height="300" alt="cheeb wm" src="https://github.com/user-attachments/assets/dad18143-63a0-4a3d-8c12-1c9cc2317b8b" />
 
 *please don't copy my skins completely, but i don't mind if you take inspiration from them!*
 
