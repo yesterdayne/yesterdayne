@@ -1,29 +1,31 @@
 ![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
 ## DAYNE ;; 32 yrs ;; she/her ;; nonbinary + lesbian + demisexual
 
-### PLEASE DON'T TRY TO RP WITH ME! ;; I DON'T TALK MUCH
-### YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY COVER ME! ;; PLEASE DO NOT COPY MY PONIES ; *you can take inspiration. as long as they dont look super similar.*
+### I DON'T RP WITH STRANGERS ;; I DON'T TALK MUCH ;; I DON'T DO SHIPS UNLESS WE KNOW EACH OTHER!
+### YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY COVER ME! ;; PLEASE DO NOT FULLY COPY MY PONIES ; *you can take inspiration. as long as they dont look super similar.*
 
-[ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ]
+[ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ;; [ATABOOK](https://dayne.atabook.org/) ]
 
-> **IF MY PONY HAS "MUTE" IN THE NAME; I WILL STILL REPLY TO CROWNS/COMPLIMENTS! I AM JUST NOT WILLING TO HOLD CONVERSATIONS AT THE MOMENT.**
+> **I WILL ALWAYS TRY TO REPLY TO WHISPER COMPLIMENTS! IF I DON'T I MOST LIKELY HAVE JUST NOT SEEN IT YET! I APPRECIATE EVERY COMPLIMENT!**
 
-> **IF I'VE REMOVED YOU FROM MY FRIENDS LIST PLEASE DON'T TAKE IT AS AN INSULT! i am clearing out my friends list except for people i know very well!**
+hello! i'm dayne. i am not super talkative, but i might be willing to chat once in awhile. i generally use pony town to sit and watch on my other monitor while i'm doing other things like playing a game, 3d modeling, or drawing. sometimes i'll just sit and make ponies.
 
-*i am not super conversational in the first place, i do not do very good with small talk and if i do manage to get into a conversation i get burnt out very fast. please try to be patient with me!! i mostly use pony town as a kind of second monitor screensaver, where i just look at people's ponies and watch conversations!*
+if you want to sit next to me, feel free! i really don't mind if people sit near or around me as long as they don't cover a large portion of my pony or i don't feel obligated/pressured into talking. :) i appreciate any other silent people who just want to chill.
 
-i like when people come and just sit with me silently! if you ever just want to hang around me with no pressure to talk feel free, i don't mind it!
-
-if you do decide to sit around/near me though- please be mindful of other people's spaces! i don't like accidentally hiding other people's ponies who are just there vibing.
-
-i generally sit in the middle island under the bakery or nearby if there's no open spots, but you might sometimes find me near spawn. just very rarely usually. if i'm in-game and not timing out, then i am at least near my computer and consciously clicking to make sure i don't d/c.
+i don't mind trying to make friends, but i am very aware that i am 32 years old and that almost everyone around me is way younger than me, so i don't really go out of my way to try and make friends. the best way to make friends with me is to talk about shared interests! i play pony town because i've always been a fan of animal games with character customization and i like chatroom type games that let me customize. reminds me of furcadia almost.
 
 --------
-![bonnie 6](https://github.com/user-attachments/assets/ecbf15ff-ff04-41cb-a70f-290300b4b75a)
+
+![gangle 4](https://github.com/user-attachments/assets/f877b5a4-45dd-4d7b-9421-43fa41c7f3d0)
 
 **the best way for me to notice you is to whisper me, but _sometimes i still manage to miss whispers!_**
 
-i am not really personally involved in any fandom spaces. i interact with art and stuff but i'm not like in the trenches. any media i like i am just on the fringes of usually. im not super interested in having big fandom conversations.
+i am not a very big fandom person. i will enjoy things from fandoms, but i try to keep it at a visitor level. i have 0 interest in fandom drama.
+current series i am interested in are: the amazing digital circus, adventure time, and witch hat atelier. i am unfortunately mostly a monoshipper when it comes to characters i am greatly attached to. currently my main ships are abstragedy (gangle x zooble) and bubbline (princess bubblegum x marceline). if you ship anything else i won't judge or hide you or anything, but i might be a bit less enthusiastic in talking about ships involving any of those characters not with each other!
+
+i am not someone who kins, but i do have characters i get insanely attached to. right now it's princess bubblegum and gangle.
+
+you can find me in various places around the map, with the most common ones being: the island in front of the bakery, spawn, or the TADC spot as of lately (the picnic area to the left of the bakery).
 
 > *DNIs uhh i guess if you're fatphobic, any of the generic racist/sexist/homophobic, if you like zoophilia/underage/noncon/necro (i am just not comfy with it fiction or not, sorry), use the r-slur (even reclaiming, yes.), if you think adults drawing nsfw is wrong (?), idk if you're just rude in general or specifically try to rile people up*
 
@@ -32,10 +34,9 @@ i am not really personally involved in any fandom spaces. i interact with art an
 --------------------------------
 <img width="425" height="421" alt="cheeb half size wm" src="https://github.com/user-attachments/assets/787e3ebb-8f55-44f5-9e3a-3974860f92cd" />
 
+_above art by me_
 
-*please don't copy my skins completely, but i don't mind if you take inspiration from them!*
-
-[ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ]
+[ [STRAWPAGE](https://yesterdayne.straw.page/) ;; [CARRD](https://yesterdayne.carrd.co/) ;; [ATABOOK](https://dayne.atabook.org/) ]
 <!---yesterdayne/yesterdayne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
