@@ -14,6 +14,8 @@ if you want to sit next to me, feel free! i really don't mind if people sit near
 
 i don't mind trying to make friends, but i am very aware that i am 32 years old and that almost everyone around me is way younger than me, so i don't really go out of my way to try and make friends. the best way to make friends with me is to talk about shared interests! i play pony town because i've always been a fan of animal games with character customization and i like chatroom type games that let me customize. reminds me of furcadia almost.
 
+i love bright colors and weird colors! a lot of my ponies will be weirdly colored!
+
 --------
 
 ![gangle 4](https://github.com/user-attachments/assets/f877b5a4-45dd-4d7b-9421-43fa41c7f3d0)
