@@ -1,5 +1,5 @@
 ![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
-## DAYNE ;; 32 yrs ;; she/her ;; nonbinary + lesbian + demisexual ;; audhd + bpd + anxiety
+## DAYNE ;; 32 yrs ;; she/her ;; nonbinary + lesbian + demisexual ;; audhd + rsd + ocd
 
 ### I DON'T RP WITH STRANGERS ;; I DON'T TALK MUCH ;; I DON'T DO SHIPS UNLESS WE KNOW EACH OTHER!
 ### YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY COVER ME! ;; PLEASE DO NOT FULLY COPY MY PONIES ; *you can take inspiration. as long as they dont look super similar.*
