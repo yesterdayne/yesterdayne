@@ -1,4 +1,5 @@
-![my wives](https://github.com/user-attachments/assets/73901dc0-4974-4cda-be13-beb36d41d322)
+[<img height="400" alt="tragedy 2026" src="https://github.com/user-attachments/assets/b5ba213c-5407-4919-89ba-de48e5f28b0d" />](https://artfight.net/~dayne)
+
 ## DAYNE ;; 32 yrs ;; she/her ;; nonbinary + lesbian + demisexual ;; audhd + rsd + ocd
 
 ### I DON'T RP WITH STRANGERS ;; I DON'T TALK MUCH ;; I DON'T DO SHIPS UNLESS WE KNOW EACH OTHER!
