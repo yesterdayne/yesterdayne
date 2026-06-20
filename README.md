@@ -17,8 +17,7 @@ i don't mind trying to make friends, but i am very aware that i am 32 years old 
 i love bright colors and weird colors! a lot of my ponies will be weirdly colored!
 
 --------
-
-![gangle 4](https://github.com/user-attachments/assets/f877b5a4-45dd-4d7b-9421-43fa41c7f3d0)
+<img width="425" height="421" src="https://i.imgur.com/0AdjTOO.png" />
 
 **the best way for me to notice you is to whisper me, but _sometimes i still manage to miss whispers!_**
 
@@ -34,7 +33,7 @@ you can find me in various places around the map, with the most common ones bein
 > _**minors on 18+ server dni pls, ty! i don't hate minors, its just that i'm 30+ years old and have no interest in befriending or talking to them.**_
 
 --------------------------------
-<img width="425" height="421" alt="cheeb half size wm" src="https://github.com/user-attachments/assets/787e3ebb-8f55-44f5-9e3a-3974860f92cd" />
+<img width="425" height="421" src="https://i.imgur.com/qn5eMHO.png" />
 
 _above art by me_
 
