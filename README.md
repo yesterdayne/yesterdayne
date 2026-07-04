@@ -1,6 +1,6 @@
 [<img height="400" alt="tragedy 2026" src="https://github.com/user-attachments/assets/b5ba213c-5407-4919-89ba-de48e5f28b0d" />](https://artfight.net/~dayne)
 
-## DAYNE ;; 32 yrs ;; she/her ;; nonbinary + lesbian + demi-aroace ;; audhd + rsd + ocd
+## DAYNE ;; 32 yrs ;; she/her ;; nonbinary + lesbian + demi-aroace ;; audhd
 
 ### I DON'T RP WITH STRANGERS ;; I DON'T TALK MUCH ;; I DON'T DO SHIPS UNLESS WE KNOW EACH OTHER!
 ### YOU CAN CUDDLE MY PONIES, PLEASE DON'T FULLY COVER ME! ;; PLEASE DO NOT FULLY COPY MY PONIES ; *you can take inspiration. as long as they dont look super similar.*
